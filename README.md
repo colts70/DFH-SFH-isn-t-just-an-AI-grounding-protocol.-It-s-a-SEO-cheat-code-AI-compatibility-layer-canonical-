@@ -1,7 +1,7 @@
 # DFH-SFH-isn-t-just-an-AI-grounding-protocol.-It-s-a-SEO-cheat-code-AI-compatibility-layer-canonical-
 The First Protocol That Helps Humans, Search Engines, and AI All at Once)
 Why the Public and Companies Want DFH/SFH
-(The First Protocol That Helps Humans, Search Engines, and AI All at Once)
+
 
 Most technologies help either companies or users.
 DFH/SFH is one of the rare ones that helps both, for the same reason:
